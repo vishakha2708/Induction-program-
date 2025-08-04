@@ -16,6 +16,7 @@
 -The break provided good time to relax and interact with fellow students.
 -Then we went towards the auditorium.
 ## Session 1:
+- The speaker "Harsimran singh", introduced all the students present in auditorium to inaugral program2025 , engaging them in an insightful session.
 -"Dr.Harpreet kaur Garewal",HoD of applied sciences, opened the session with heartfelt welcome and motivational message.
 -"Dr.Sehijpal singh",Principal, highlighted GNDEC's academic strenghth and the importance of embracing opportunities during college life.
 -After that The Chief guest,"S.Maheshinder singh" ex cabinet minister and trustee of nankana sahib education trust, inspired students with his words ondiscipline , purpose , and the founding vision of the college.
