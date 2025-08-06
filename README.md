@@ -22,14 +22,14 @@
 -After that The Chief guest,"S.Maheshinder singh" ex cabinet minister and trustee of nankana sahib education trust, inspired students with his words ondiscipline , purpose , and the founding vision of the college.
 ## 1:30pm
 -After the formal welcome program , students visited their respective departments for meeting faculty, exploring labs, orientation and facilities.
-# Day2 1 August 2025
+# Day2  1 August 2025
 ## 9:00am to 11:00am
 -There was a lecture by "Priya darshini" mam held at auditorium on "Universal Human values" where she talks about time managment for our student life in which she emphasized the value of using time effectively to achieve both personal and professional goals. She discussed techniques like prioritization, goal setting, and creating daily schedules to enhance productivity. The lecture highlighted the importance of avoiding procrastination and staying focused. She also stressed the need to balance academic, personal, and social life. Her insights encouraged students to be more disciplined and organized. Overall, the session was practical and motivational.
 ## 1:30pm to 2:30pm
 - There was english proficiency test held for all the students of different branches at different venues.
 ## 2:30pm to 3:30pm
 - There was maths proficiency test held for all the students of different branches at different venues.
-# Day3 4 August 2025
+# Day3  4 August 2025
 ## 8:30am to 10:00am
 -The Causmic Club conducted an engaging session in the auditorium to showcase their achievements to the first-year students. The club members presented their past events, technical projects, and participation in various competitions. They highlighted opportunities for learning, collaboration, and skill development within the club. The session aimed to inspire new students to join and actively participate. Interactive discussions and a Q&A segment made the event lively. Overall, it was an informative and motivating introduction to the club’s activities.
 -Mr. "Gautam Murria"from D4 conducted an exciting session on Motorsports, sharing his knowledge and passion for the field with fellow students. He discussed the basics of motorsports, types of racing, and the technical aspects involved in building and maintaining race vehicles. Gautam sir also shared his personal experiences from college-level competitions and projects. The session aimed to inspire students to explore motorsports as a field of interest and potential career path. His enthusiasm and expertise made the session highly engaging. 
@@ -39,7 +39,7 @@
 - The English lecture by "Prof. Nisha" was an introductory session aimed at building a comfortable and interactive classroom environment. She warmly welcomed the students and encouraged each one to introduce themselves. The session helped students become familiar with one another and boosted their confidence in speaking English. Prof. Nisha also shared her expectations for the course and emphasized the importance of communication skills. The atmosphere was friendly and engaging. Overall, it was a great start to the academic journey.
 ## 2:30pm to 3:30pm
 - There was P2P lecture which was conducted by seniors to help first year students understand the basics of C++ programming language.The session covered fundamental topics such as syntax, data types, variables, and control statements. Seniors explained complex concepts in a simple and relatable manner, making it easier for beginners to grasp. Live coding examples and doubt-clearing interactions added great value to the session. The initiative encouraged peer learning and built a strong foundation in programming. Overall, it was an informative and supportive session.
-# Day4 5 August 2025
+# Day4  5 August 2025
 ## 1:30pm to 2:30pm
 - A senior student conducted an interactive session with first-year students to build a friendly and supportive environment. He began by taking introductions from all the newcomers, making the atmosphere welcoming and comfortable. He then shared his own first-year experiences, including academic challenges, hostel life, and tips for managing studies and extracurriculars. The session was filled with relatable stories and helpful advice. Students felt encouraged and more confident about their journey ahead. Overall, it was a warm and insightful interaction.
 ## 2:30pm to 4:00pm
